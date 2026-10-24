@@ -1,0 +1,1 @@
+# Consent-and-Royalties-for-AI-Training-Data
